@@ -3,7 +3,7 @@ gfhyjtddcfsdkjcnvdsfjkvhdrfijh
 
 
 
-
+to zostało dodane w przegladarce
 
 
 
