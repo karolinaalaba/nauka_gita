@@ -17,3 +17,5 @@ kakakakak
 
 dalej ucze sie
 
+jdjdjdjdjd
+
